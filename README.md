@@ -1,1 +1,1 @@
-![](https://github.com/fujinumas/fujinumas/blob/fded7aeac6eb2e89485a8b91dd2795e366711e08/IMG_4892.jpg)
+![](https://github.com/fujinumas/fujinumas/blob/50dff341248bd4cb363f3e62f1446122d48dfd16/ezgif-2-700ed2dd73.gif)
